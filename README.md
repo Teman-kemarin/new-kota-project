@@ -1,6 +1,3 @@
-**Situs Slot Online Resmi Terbaru Gampang Menang Jackpot 2022**
-===============================================================
-
 **[\> > > DAFTAR SLOT ONLINE < < <](https://bit.ly/gacor-gacor)**
 =================================================================
 
